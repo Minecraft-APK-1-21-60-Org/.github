@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/7577a042-3734-46fb-91fe-6bae7634b17d)# Minecraft APK 1.21.60 (MEDiaFIre) Actualización Descarga gratuita para Android (UpDate 2025)
+# Minecraft APK 1.21.60 (MEDiaFIre) Actualización Descarga gratuita para Android (UpDate 2025)
 
 ## 👉👉👉[Descarga Minecraft APK 1.21.60 (MEDiaFIre)](https://modcombo.com/minecraft-1.html)
 # **Minecraft APK 1.21.60: Explorando la Nueva Actualización**  
